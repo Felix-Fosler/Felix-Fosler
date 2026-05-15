@@ -2,4 +2,8 @@
 
 <p> if you are reading <b>THIS</b>, it will be important. </p>
 
-<p> that was a lie.</p> 
+
+
+<p> “ The one’s ability to being capable of even comprehending the truly infinite possibilities in existence are neverending phenomenal beings and humans can’t grasp the true essence of it, but there are things like that of infinite infinitely possibilities to everything just like a idea or theory and the endless infinite can be opened for all to witness or be used as an opportunity that we may have in this plain of existence or life. " </p>
+
+<p> For all of that existential for all beings of life, running through all of the memory lanes and events that had occurred in this period of time. This is merely just a capacity of all living life forms of what is known, and what will be learnt can be remembered or passed onto another just for the thought of it will be wide around everywhere. The concepts and ideas will ever be so different on what people will think since it is how the brain being capable to remember, think, imagine, and dream of any kind of things for the reach of those heights is what truly is fascinating for all humans. For all of the existence of the humans are incomprehensible and that of limitation of a brain could handle, thinking and doing is just how things operate in the world of wonders, and any person can have the same or different story. It is simply complex for one to think any higher than what the human brain can do. Complexity of the brain phenomenon will forever be yet to be explained or understood by all means. It is how humans are unique, having feelings, different thinking, and personalities. I am stuck in this complexity of life and decisions that I just cannot find a way to escape from this hellscape I painted for myself, and I just want to find another way to finally find my peace when I die or intergrate somewhere but this is the reality I am in. </p>
